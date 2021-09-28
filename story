@@ -1,0 +1,1 @@
+SAM is a student. he loves reading book ,he goes to library every sunday and gets new books.
